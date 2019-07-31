@@ -1,1 +1,0 @@
-# kabushikikaisha-akane.github.io
